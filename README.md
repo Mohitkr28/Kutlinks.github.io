@@ -1,1 +1,1 @@
-# https://mohitkr28.github.io/Kutlinks.github.io/
+# https://mohitkr28.github.io/Kutlink.github.io/
